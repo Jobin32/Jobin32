@@ -1,4 +1,0 @@
-- 👋 Hi, I’m Frederik
-- 👀 I’m interested in anime and game makeing
-- 🌱 I’m currently learning the aplhabeth
-- 📫 How to reach me freddysenpai69420@gmail.com-email , Jobin Higashikata#7228-discord
